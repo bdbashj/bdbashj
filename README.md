@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bdbashj
+- 👀 I’m interested in 2137
+- 🌱 I’m currently learning N/a
+- 💞️ I’m looking to collaborate on N/a
+- 📫 How to reach me N/a
